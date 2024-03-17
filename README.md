@@ -1,6 +1,6 @@
 
 ### Hello There 👋
-„Loni jsem chtěl vidět Maltu, letos ovšem frčím k Baltu. České holky, české pivo, u moře je prostě živo. Je to zkrátka super věc, že nám patří Královec,“
+„“
 
 <h3 align="center">Czech boi</h3>
 
