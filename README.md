@@ -1,6 +1,6 @@
 
 ### Hello There 👋
-„“
+„Man of culture“
 
 <h3 align="center">Czech boi</h3>
 
